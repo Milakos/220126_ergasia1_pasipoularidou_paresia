@@ -1,0 +1,2 @@
+# 220126_ergasia1_pasipoularidou_paresia
+synesthesia_as_a_tool_for_creating_new_art_forms
